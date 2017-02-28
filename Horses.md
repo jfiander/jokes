@@ -1,4 +1,4 @@
-# The Horses
+# Horses
 
 ## The First Week
 
