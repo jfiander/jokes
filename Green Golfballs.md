@@ -2,13 +2,6 @@
 
 ## Jack's Sixth Birthday
 
-- Introduce Jack and his dad
-- Recently lost his mom
-- Dad offers anything for his birthday to help him feel better
-- Asks for one green golfball
-- Dad asks why
-- Jack says he'll tell him when the time is right
-
 Jack and his dad live in a nice house in a quiet suburb. Jack's mom died a few months ago, so he's still pretty upset about that. His birthday is coming up, so his dad makes him an offer.
 
 "Jack, your birthday is coming up. To help you feel jsut a little bit better after we lost mom, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
@@ -23,12 +16,6 @@ Jack simply responded, "I'll tell you when the time is right, Dad."
 
 ## Jack's Tenth Birthday
 
-- Jack has just turned 10 years old, a big milestone!
-- Dad offers anything for his birthday and to celebrate
-- Asks for a bucket of green golfballs
-- Dad asks why again
-- Jack says he'll tell him when the time is right
-
 Jack's tenth birthday arrived. That morning, his dad said to him, "Jack, you've reached a big milestone. Ten years! To celebrate, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
 
 Jack smiled, then sat there for a few minutes. Finally, he said, "Okay. For my birthday, I'd like a bucket full of green golballs."
@@ -41,12 +28,6 @@ His dad resigned himself to not learning this year what the golfballs were for, 
 
 ## Jack's Fourteenth Birthday
 
-- After working hard, Jack has just received his driver's license
-- Dad offers anything for his birthday and to celebrate
-- Asks for a car full of green golfballs
-- Dad asks why yet again
-- Jack says he'll tell him when the time is right
-
 After working very hard, Jack finally received his driver's license, right on his fourteenth birthday. His dad, obviously proud of his son, said, "Jack, you're really becomming a grown man. I'm sure your mom would be so proud to see how you've grown. To celebrate, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
 
 Jack thought about it for the whole drive home. As they pulled into the driveway, Jack told his dad, "I've decided what I want for my birthday. I'd like an entire car full of green golfballs."
@@ -56,13 +37,6 @@ Jack thought about it for the whole drive home. As they pulled into the driveway
 "I'll tell you when the time is right, Dad," was all Jack said in response.
 
 ## Jack's Eighteenth Birthday
-
-- Jack has graduated valedictorian
-- He's headed off to Princeton in the fall
-- Dad offers anything for his birthday and to celebrate
-- Asks for a truck full of green golfballs
-- Dad asks why once more
-- Jack says the time is almost right
 
 Jack graduated valedictorian of his high school class. He had secured a full scholarship to Princeton, and his dad couldn't be more proud of his son. Driving home from his graduation ceremony, his dad couldn't stop talking about his son's accomplishments over the past eighteen years. He took his son out to a celebratory dinner, and they spent the whole time talking and laughing.
 
@@ -75,17 +49,6 @@ Jack didn't spend any time thinking about it, though. "I already know what I wan
 Jack smiled brightly and said, "Yeah, Dad, I think the right time is almost here."
 
 ## The Accident
-
-- Jack's dad is at work
-- He gets a call that Jack was involved in a crash with a truck, that was loaded with, of all things, green golfballs...
-- He rushes to the hospital to see his son
-- When he gets there, Jack had just been wheeled out of surgery
-- He goes to his recovery room
-- He tells Jack that he's so glad he's alright, and couldn't stand to lose him
-- Jack says he thinks he'll be alright
-- His dad asks him: "Son... For years, the only thing you've asked of me is more and more green golfballs, and you always said you'd tell me when the time is right. Do you think you could tell me what all of the green golfballs are for now, so I can stop worrying about that, at least?"
-- Jack responds, "Yeah, Dad, I think now's the right time. Okay. The green golfballs are for—"
-- And he died.
 
 Jack's dad was at work when he got the call. His son's car was hit by a truck that was loaded with, of all things, green golfballs...
 
