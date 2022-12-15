@@ -4,7 +4,7 @@
 
 Out in upstate New York, there's this run-down horse racing barn, run by a guy named Henry. He has two horses: a big one called Chestnut, and a small one called Tiny. Both horses enjoy nothing more than to race all day long, but Chestnut is clearly the better racer than Tiny, since he's just so much stronger. Henry knows this, and since the barn is really down on its luck, he goes and tells Tiny that unless he can race as well as Chestnut, he'll have no choice but to sell him to the glue factory to make ends meet. Tiny says, "I won't let you down, Henry." Henry responds, "I know, Tiny. I know."
 
-Terrified of being sold to the factory, and annoyed by never beating Chestnut, Tiny decides that he's going to give it his absolute all. He asks the barn dog, Baxter, to help him train. Baxter heard what might happen to Tiny, so of course he agrees. He tells Tiny to start lifting weights. He leads Tiny out onto the track every day and encourgages him to beat his personal best each time he runs.
+Terrified of being sold to the factory, and annoyed by never beating Chestnut, Tiny decides that he's going to give it his absolute all. He asks the barn dog, Baxter, to help him train. Baxter heard what might happen to Tiny, so of course he agrees. He tells Tiny to start lifting weights. He leads Tiny out onto the track every day and encourages him to beat his personal best each time he runs.
 
 ## The Second Week
 

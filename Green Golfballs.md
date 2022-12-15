@@ -2,7 +2,7 @@
 
 ## Jack's Sixth Birthday
 
-Jack and his dad lived in a nice house in a quiet suburb. Jack's mom had died a few months ago, so he was still pretty upset about that. His birthday was coming up, so his dad maked him an offer.
+Jack and his dad lived in a nice house in a quiet suburb. Jack's mom had died a few months ago, so he was still pretty upset about that. His birthday was coming up, so his dad made him an offer.
 
 "Jack, your birthday is coming up. To help you feel just a little bit better after we lost mom, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
 
@@ -18,7 +18,7 @@ Jack simply responded, "I'll tell you when the time is right, Dad."
 
 Jack's tenth birthday arrived. That morning, his dad said to him, "Jack, you've reached a big milestone. Ten years! To celebrate, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
 
-Jack smiled, then sat there for a few minutes. Finally, he said, "Okay. For my birthday, I'd like a bucket full of green golballs."
+Jack smiled, then sat there for a few minutes. Finally, he said, "Okay. For my birthday, I'd like a bucket full of green golfballs."
 
 Jack's dad was plainly confused. He said, "Jack, I don't get it. Four years ago you asked me for a single green golfball, and said you'd explain later. Now you're asking for a whole bucket of them. Will I get to find out what they're for?"
 
@@ -28,7 +28,7 @@ His dad resigned himself to not learning this year what the golfballs were for, 
 
 ## Jack's Fourteenth Birthday
 
-After working very hard, Jack finally received his driver's license, right on his fourteenth birthday. His dad, beaming at his son, said, "Jack, you're really becomming a grown man. I'm sure your mom would be so proud to see how you've grown. To celebrate, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
+After working very hard, Jack finally received his driver's license, right on his fourteenth birthday. His dad, beaming at his son, said, "Jack, you're really becoming a grown man. I'm sure your mom would be so proud to see how you've grown. To celebrate, I'd like to buy you something for your birthday. It can be anything at all. Just name it, and I'll get it for you."
 
 Jack thought about it for the whole drive home. As they pulled into the driveway, Jack told his dad, "I've decided what I want for my birthday. I'd like an entire car full of green golfballs."
 
